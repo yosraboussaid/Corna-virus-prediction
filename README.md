@@ -1,1 +1,1 @@
-# Corna-virus-prediction
+# Corona-virus-prediction
