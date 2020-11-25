@@ -1,5 +1,6 @@
 
 
+![alt text](https://fr.depositphotos.com/290051338/stock-illustration-pneumonia-lobar-pneumonia-isolated-vector.html/depositphotos_290051338-stock-illustration-pneumonia-lobar-pneumonia-isolated-vector.jpg)
 
 
 Corona virus disease (COVID-19) is an infectious disease caused by a newly discovered corona virus.
